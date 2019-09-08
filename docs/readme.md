@@ -6,20 +6,19 @@ We're here to help.
 
 # Solve Your Oversights
 Most startups fail in **preventable** ways.  
-What you don't know can definitely cause you stress, problems, and lost revenue.  
 Unfortunately, you can't know unless someone tells you.  
 
-Thankfully, you're building on our success here.  
-We launched a Pacific Northwest puzzle room startup that was valued at half a million within the first year.  
+Thankfully, sharing our success secrets here.  
+Our startup was valued at half a million within the first year.  
 And, we want you to do *better* than we did.  
-
-With our guide, you'll be forewarned against things that will try to torpedo **your** success story.
 
 Ready to take your game to the next level?
 
 ## Best Value
+With our guide, you'll avoid the pitfalls that are already holding you back from **your** success story.
+
 Our guide to puzzle room startups includes:
-- The **full** [Quickstart Kit](/buy/).  
+- The **full** Quickstart Kit.  
 - A multi-page PDF detailing an example puzzle room layout.  
 - Text templates for puzzles and promotional materials.  
 - The "Streamlining Your Checkout" brocure.  
@@ -27,11 +26,12 @@ Our guide to puzzle room startups includes:
 - Plus the full writeup, including team-building, location analysis, and common pitfalls.
 
 Get yours today:  
-[Purchase Full Kit](/full)  
+[Purchase Full Kit](/buy/)  
 
 ## Quick Knowledge
-Want just a taste of the main course?  
-Check out the [Quickstart Kit](/buy/#QuickStart).  
+Want just a taste of the information we prepared for you?  
+
+Download the [Free Brochure](/free/), or check out the Quick Start Guide.  
 Inside, you'll find relevant strategic business for all stages of the entertainment startup cycle!
 
 Get this important info now:  
