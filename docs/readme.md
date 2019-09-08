@@ -13,9 +13,9 @@ With our quickstart guide, you'll be forewarned about the things that'll try to 
 
 Our full guide includes templates and extra information in case you're starting from scratch.
 
-# Purchase Guarentee
+# Purchase Guarantee
 Still not sure?  
-We offer a 100% satisfaction guarentee for all purchases.  
+We offer a 100% satisfaction guarantee for all purchases.  
 
 ## Best Value
 The full package includes:
