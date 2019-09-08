@@ -1,16 +1,19 @@
 Trying to start an escape room?  
 Started a puzzle game, and scared that you won't make payroll next month?  
-Managing multiple locations, and overwhelmed?
+Managing multiple locations and feeling overwhelmed?
 
 We're here to help you get past that.
 
 # Solve Your Oversights
-Most startups fail in **preventable** ways.  
-Unfortunately, you can't know unless someone from the industry warns you.  
+Most startups fail in **preventable** ways.
 
-Our startup was valued at half a million within the first year.  
-And, we are ready to share our success tactics with you.  
-We want you to do *better* than we did.  
+How can you prevent what you can't already forsee?  
+By learning from the successes (and mistakes) of the industry professionals.
+
+Our puzzle room startup was valued at half a million within the first few months of operation.  
+
+Now we're ready to share our knowledge with you,  
+so that you can do even better.  
 
 Ready to take your game to the next level?
 
