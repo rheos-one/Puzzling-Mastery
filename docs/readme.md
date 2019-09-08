@@ -25,7 +25,7 @@ Our guide to puzzle room startups includes:
 - The "Streamlining Your Checkout" brochure.  
 - Marketing, search optimization, and scheduling suggestions.  
 - Plus the full scoop on team-building, location analysis, and common pitfalls.
-_([more info](/buy))_
+- _([more info](/buy))_
 
 **[Get the Full Digital Download Now](https://cart.rheos.one/puzzling-mastery)**
 
@@ -33,13 +33,13 @@ _([more info](/buy))_
 # Quick Knowledge
 Want just a taste of the information we've prepared for you?  
 
-The [Free 3-Step Brochure](/free) gives you relevant business strategies for critical portions of your entertainment startup operations.
+The [Quickstart Kit](https://cart.rheos.one/puzzling-mastery-quickstart) gives you high level action items to resolve the most common problems with an entertainment startup, along with best practices for those just beginning their journey. 
 
 &nbsp;
 
 Want more, but not quite ready to commit?  
 
-The [Quickstart Kit](https://cart.rheos.one/puzzling-mastery-quickstart) gives you high level action items to resolve the most common problems with an entertainment startup, along with best practices for those just beginning their journey.  
+The [Free 3-Step Brochure](/free) gives you relevant business strategies for critical portions of your entertainment startup operations. 
 
 # Satisfaction Guarantee
 All purchases come with a 100% satisfaction guarantee.  
