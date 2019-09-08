@@ -5,8 +5,10 @@ For $110, you get the following:
 - The **full** Quickstart Kit.  
 - A multi-page PDF detailing an example puzzle room layout.  
 - Text templates for puzzles and promotional materials.  
-- The "Streamlining Your Checkout" brocure.  
-- Marketing, search optimization, and scheduling suggestions.  
+- The "Streamlining Your Checkout" brochure.  
+- Marketing vector analysis and suggestions for community cross-promotions.   
+- Search engine optimization and keywords to avoid.  
+- Tips and tricks for scheduling around peak leasure time for your locale.  
 - Plus the full writeup, including team-building, location analysis, and common pitfalls.
 
 [Checkout Now](https://cart.rheos.one/puzzling-mastery)
