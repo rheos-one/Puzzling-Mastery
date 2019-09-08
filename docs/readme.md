@@ -1,4 +1,4 @@
-Trying to start an escape room?  
+Trying to open an escape room?  
 Started a puzzle game, and scared that you won't make payroll next month?  
 Managing multiple locations and feeling overwhelmed?
 
