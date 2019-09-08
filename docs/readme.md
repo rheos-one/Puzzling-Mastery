@@ -35,8 +35,11 @@ Want just a taste of the information we've prepared for you?
 View the [Free 3-Step Brochure](/free) online.  
 Here you'll find relevant business strategies for three critical portions of entertainment startup operations.
 
-Want more, but not ready to commit?  
-Purchase the [Quickstart Kit](/buy#quickstart) now.  
+Want more, but not quite ready to commit?  
+
+The Quickstart kit gives you high level action items to fix the most common problems with an entertainment startup, along with best practices for those just beginning their journey.  
+
+**Purchase the [Quickstart Kit](/buy#quickstart) now.**  
 
 # Satisfaction Guarantee
 All purchases come with a 100% satisfaction guarantee.  
