@@ -25,17 +25,17 @@ Our guide to puzzle room startups includes:
 - Marketing, search optimization, and scheduling suggestions.  
 - Plus the full writeup, including team-building, location analysis, and common pitfalls.
 
-[Get the Full Kit](/buy/)  
+[Get the Full Kit](/buy)  
 ===
 
 ## Quick Knowledge
 Want just a taste of the information we prepared for you?  
 
-Download the [Free Brochure](/free/).  
+View the [Free 3-Step Brochure](/free) online.  
 Inside, you'll find relevant strategic business for all stages of the entertainment startup cycle!
 
 Want a bit more, but not ready to commit?
-Purchase the [Quickstart Kit](/buy/#quickstart)  
+Purchase the [Quickstart Kit](/buy#quickstart)  
 
 # Satisfaction Guarantee
 All purchases come with a 100% satisfaction guarantee.  
