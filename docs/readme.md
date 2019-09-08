@@ -1,21 +1,21 @@
 Trying to start an escape room?  
-Started a puzzle game, and scared that you won't make payroll?  
-Need an infusion of information from industry experts?
+Started a puzzle game, and scared that you won't make payroll next month?  
+Managing multiple locations, and overwhelmed?
 
-We're here to help.
+We're here to help you get past that.
 
 # Solve Your Oversights
 Most startups fail in **preventable** ways.  
-Unfortunately, you can't know unless someone tells you.  
+Unfortunately, you can't know unless someone from the industry warns you.  
 
-Thankfully, sharing our success secrets here.  
 Our startup was valued at half a million within the first year.  
-And, we want you to do *better* than we did.  
+And, we are ready to share our success tactics with you.  
+We want you to do *better* than we did.  
 
 Ready to take your game to the next level?
 
 ## Best Value
-With our guide, you'll avoid the pitfalls that are already holding you back from **your** success story.
+With our guide, you'll avoid the pitfalls that already hold you back from **your** success story.
 
 Our guide to puzzle room startups includes:
 - The **full** Quickstart Kit.  
@@ -25,17 +25,17 @@ Our guide to puzzle room startups includes:
 - Marketing, search optimization, and scheduling suggestions.  
 - Plus the full writeup, including team-building, location analysis, and common pitfalls.
 
-Get yours today:  
-[Purchase Full Kit](/buy/)  
+[Get the Full Kit](/buy/)  
+===
 
 ## Quick Knowledge
 Want just a taste of the information we prepared for you?  
 
-Download the [Free Brochure](/free/), or check out the Quick Start Guide.  
+Download the [Free Brochure](/free/).  
 Inside, you'll find relevant strategic business for all stages of the entertainment startup cycle!
 
-Get this important info now:  
-[Purchase Quickstart Kit](/quickstart)  
+Want a bit more, but not ready to commit?
+Purchase the [Quickstart Kit](/buy/#quickstart)  
 
 # Satisfaction Guarantee
 All purchases come with a 100% satisfaction guarantee.  
