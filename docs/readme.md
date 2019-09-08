@@ -14,7 +14,7 @@ We want you to do *better* than we did.
 
 Ready to take your game to the next level?
 
-## Best Value
+# Best Value
 With our guide, you'll avoid the pitfalls that already hold you back from **your** success story.
 
 Our guide to puzzle room startups includes:
@@ -25,10 +25,10 @@ Our guide to puzzle room startups includes:
 - Marketing, search optimization, and scheduling suggestions.  
 - Plus the full writeup, including team-building, location analysis, and common pitfalls.
 
-[Get the Full Kit](/buy)  
-===
+**[Get the Full Digital Download Now](/buy)**
 
-## Quick Knowledge
+
+# Quick Knowledge
 Want just a taste of the information we prepared for you?  
 
 View the [Free 3-Step Brochure](/free) online.  
