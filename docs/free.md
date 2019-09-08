@@ -45,4 +45,4 @@ _(you must be willing to change the game room, and do so regularly to simplify t
 Have you done everything here?  
 Ready to do more?  
 
-[Visit our store page](/buy/) for the strategies and tactics to take your startup from mediocre to mighty.
+[Visit our store page](/buy) for the strategies and tactics to take your startup from mediocre to mighty.
