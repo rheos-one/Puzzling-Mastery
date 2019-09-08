@@ -19,15 +19,21 @@ We offer a 100% satisfaction guarentee for all purchases.
 
 ## Best Value
 The full package includes:
-- The **full** QuickStart Kit.  
+- The **full** [Quickstart Kit](/quickstart).  
 - A multi-page PDF detailing an example puzzle room layout.  
 - Text templates for puzzles and promotional materials.
 - The "Streamlining Your Checkout" brocure.
 - Plus the full writeup, including team-building, location analysis, and common pitfalls.
 
+Get yours today:  
+[Purchase Full Kit](/full)
+
+Not sure it's worth the sticker price?  
+
+
 ## Knowledge Lite
 Want just a taste?  
-Check out the [Quickstart Kit](#), it gives you the relevant strategic info without breaking your wallet!
+Check out the [Quickstart Kit](/quickstart), it gives you the relevant strategic info without breaking your wallet!
 
 # Legal
 All content (&copy;/©) 1990-2020 Lovelace & Associates, reproduction prohibited.
