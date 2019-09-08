@@ -5,7 +5,7 @@ Managing multiple locations and feeling overwhelmed?
 We're here to help you get past that.
 
 # Solve Your Oversights
-Most startups fail in **preventable** ways.
+Most startups fail in **preventable** ways.  
 How can you prevent what you can't already forsee?  
 By learning from the successes (and mistakes) of the industry professionals.
 
