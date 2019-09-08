@@ -34,8 +34,8 @@ Want just a taste of the information we prepared for you?
 View the [Free 3-Step Brochure](/free) online.  
 Inside, you'll find relevant strategic business for all stages of the entertainment startup cycle!
 
-Want a bit more, but not ready to commit?
-Purchase the [Quickstart Kit](/buy#quickstart)  
+Want a bit more, but not ready to commit?  
+Purchase the [Quickstart Kit](/buy#quickstart) now.  
 
 # Satisfaction Guarantee
 All purchases come with a 100% satisfaction guarantee.  
